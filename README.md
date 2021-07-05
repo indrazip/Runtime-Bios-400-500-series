@@ -2,7 +2,7 @@
 
 
     GUNAKAN DENGAN BIJAK SEGALA SSUATU DI TANGGUNG SENDIRI
-    For Business 082216656076
+    
              
 
             
